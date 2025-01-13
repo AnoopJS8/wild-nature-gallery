@@ -1,2 +1,2 @@
 # wild-nature-gallery
-Welcome to the wildlife and Nature Collections! 
+Welcome to the Wildlife and Nature Collections! 
